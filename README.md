@@ -1,0 +1,1 @@
+# Possible functions for cheats
